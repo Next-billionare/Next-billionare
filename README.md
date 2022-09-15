@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Next-billionare
+-  I’m interested in finance, reading and web development.
+-  I’m a full time student who is currently learning web development side by side with school
+- You can contact me on yashshea@gmail.com
